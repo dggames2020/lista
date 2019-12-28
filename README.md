@@ -2,14 +2,34 @@
 
 #PLAYLISTV: pltv-logo="/iptv-list.jpg" pltv-name="Online" pltv-description="Lista IPTV" pltv-cover="/iptv-list.jpg" pltv-author="luy" pltv-email="11-95977-1458"
 
-#EXTINF:-1 tvg-logo="https://i.ytimg.com/vi/ScAuarYtHpM/maxresdefault.jpg" group-title="NetFilmes", Natal Shopping
-https://videos2.sendvid.com/dd/86/7phqdzsq.mp4?validfrom=1577475302&validto=1577482502&rate=200k&burst=1000k&ip=45.168.22.255&hash=o7Mb7mo1yj8uvc%2BbDTRc1Fwq2Q0%3D
+#EXTINF:-1
+https://assets.wowmodels.com/afg/A/build/content/trailers/you-belong-to-me/trailer-954ed73afb.mp4
 
-#EXTINF:-2 tvg-logo="https://i.ytimg.com/vi/z0CCHkCxNZ0/maxresdefault.jpg" group-title="NetFilmes", Universsal Motivacao
-https://videos2.sendvid.com/55/63/46w92uqc.mp4?validfrom=1577476267&validto=1577483467&rate=200k&burst=1000k&ip=45.168.22.255&hash=o5fIjn1phj4FB5rMbS8x7d3f8T0%3D
+#EXTINF:-1
+https://assets.wowmodels.com/afg/A/build/content/trailers/a-gentle-penetration/trailer-a2a9f8b7d8.mp4
 
-#EXTINF:-3 tvg-logo="https://i.ytimg.com/vi/ISiTpNyt1tI/hqdefault.jpg" group-title="NetFilmes",  Couch Motivacao PC
-https://videos2.sendvid.com/85/ed/63pjrpet.mp4?validfrom=1577476803&validto=1577484003&rate=200k&burst=1000k&ip=45.168.22.255&hash=F03AHf9ANk%2B1yAQwAH4ObbP48%2BE%3D
+#EXTINF:-1
+http://dvpa3ulcl9eyc.cloudfront.net/RCFServer3/ondemand/SPCJAMOJGDSCLO.mp4
 
-#EXTINF:-3, Couch Motivacao CEL
-https://videos2.sendvid.com/85/ed/63pjrpet.mp4?validfrom=1577476918&validto=1577484118&rate=200k&burst=1000k&ip=45.168.22.255&hash=Zhf6FbHhA949lludcWokh%2BLFHng%3D
+#EXTINF:-1
+http://d14chltqrjxpin.cloudfront.net/RCFServer4/ondemand/ADMAEOVAGNDO.mp4
+
+#EXTINF:-1
+https://stmv1.srvstm.com/yeeaah/yeeaah/playlist.m3u8
+
+#EXTINF:-1
+http://tv02.logicahost.com.br:1935/cariocainterativo/cariocainterativo/chunklist_w1607421448.m3u8
+
+#EXTINF:-1
+https://edge126.rcs-rds.ro/digi24edge/smil:musicchannel.smil/chunklist_w1548632419_b1892495_sleng.m3u8
+
+#EXTINF:-1
+http://d14chltqrjxpin.cloudfront.net/RCServer12/ondemand/SPCGHSTCSTACSTEP001.mp4
+
+#EXTINF:-1
+http://d14chltqrjxpin.cloudfront.net/RCServer12/ondemand/SPCGHSTCSTACSTEP085.mp4
+
+#EXTINF:-1
+http://dvpa3ulcl9eyc.cloudfront.net/RCServer09/ondemand/ACGNPRFNEP16.mp4
+
+
