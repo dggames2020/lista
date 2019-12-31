@@ -23,13 +23,5 @@ http://tv02.logicahost.com.br:1935/cariocainterativo/cariocainterativo/chunklist
 #EXTINF:-1
 https://edge126.rcs-rds.ro/digi24edge/smil:musicchannel.smil/chunklist_w1548632419_b1892495_sleng.m3u8
 
-#EXTINF:-1
-http://d14chltqrjxpin.cloudfront.net/RCServer12/ondemand/SPCGHSTCSTACSTEP001.mp4
-
-#EXTINF:-1
-http://d14chltqrjxpin.cloudfront.net/RCServer12/ondemand/SPCGHSTCSTACSTEP085.mp4
-
-#EXTINF:-1
-http://dvpa3ulcl9eyc.cloudfront.net/RCServer09/ondemand/ACGNPRFNEP16.mp4
 
 
