@@ -9,12 +9,6 @@ https://assets.wowmodels.com/afg/A/build/content/trailers/you-belong-to-me/trail
 https://assets.wowmodels.com/afg/A/build/content/trailers/a-gentle-penetration/trailer-a2a9f8b7d8.mp4
 
 #EXTINF:-1
-http://dvpa3ulcl9eyc.cloudfront.net/RCFServer3/ondemand/SPCJAMOJGDSCLO.mp4
-
-#EXTINF:-1
-http://d14chltqrjxpin.cloudfront.net/RCFServer4/ondemand/ADMAEOVAGNDO.mp4
-
-#EXTINF:-1
 https://stmv1.srvstm.com/yeeaah/yeeaah/playlist.m3u8
 
 #EXTINF:-1
