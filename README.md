@@ -2,10 +2,10 @@
 
 #PLAYLISTV: pltv-logo="/iptv-list.jpg" pltv-name="Online" pltv-description="Lista IPTV" pltv-cover="/iptv-list.jpg" pltv-author="luy" pltv-email="11-95977-1458"
 
-#EXTINF:-1
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS", Buceta gostosa2 [COLOR red] . [/COLOR]
 https://assets.wowmodels.com/afg/A/build/content/trailers/you-belong-to-me/trailer-954ed73afb.mp4
 
-#EXTINF:-1
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS", RASPADINHA [COLOR red] . [/COLOR]
 https://assets.wowmodels.com/afg/A/build/content/trailers/a-gentle-penetration/trailer-a2a9f8b7d8.mp4
 
 #EXTINF:-1
