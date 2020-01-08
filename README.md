@@ -8,14 +8,6 @@ https://assets.wowmodels.com/afg/A/build/content/trailers/you-belong-to-me/trail
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS", RASPADINHA [COLOR red] . [/COLOR]
 https://assets.wowmodels.com/afg/A/build/content/trailers/a-gentle-penetration/trailer-a2a9f8b7d8.mp4
 
-#EXTINF:-1
-https://stmv1.srvstm.com/yeeaah/yeeaah/playlist.m3u8
-
-#EXTINF:-1
-http://tv02.logicahost.com.br:1935/cariocainterativo/cariocainterativo/chunklist_w1607421448.m3u8
-
-#EXTINF:-1
-https://edge126.rcs-rds.ro/digi24edge/smil:musicchannel.smil/chunklist_w1548632419_b1892495_sleng.m3u8
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS", Esporrando no cu [COLOR red] . [/COLOR]
 https://videos.filmesporno.net.br/35326857/video.mp4
 
@@ -69,5 +61,49 @@ https://videos.xvideoss.com.br/upload_videos/27771427.mp4
 
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS", Mia Khalifa [COLOR red] . [/COLOR]
 https://videos.xvideoss.com.br/upload_videos/39607135.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS", Cheias de Tesão [COLOR red] . [/COLOR]
+http://c-cdn.cdntwo.net/media/17666/17666.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Carioca no Anal [COLOR red] . [/COLOR]
+http://c-cdn.cdntwo.net/media/16984/16984.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Vendedora Ágatha [COLOR red] . [/COLOR]
+http://c-cdn.cdntwo.net/media/18324/18324.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Tight Teens [COLOR red] . [/COLOR]
+http://a-cdn.cdntwo.net/media/13504/13504.mp4 
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Em Família[COLOR red] . [/COLOR]
+http://a-cdn.cdntwo.net/media/20155/20155.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Cheias de Tesão [COLOR red] . [/COLOR]
+http://c-cdn.cdntwo.net/media/17666/17666.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Anal Amazon [COLOR red] . [/COLOR]
+http://a-cdn.cdntwo.net/media/13578/13578.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Casais Sex [COLOR red] . [/COLOR]
+http://c-cdn.cdntwo.net/media/7909/7909.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Gordinho e amiga [COLOR red] . [/COLOR]
+http://a-cdn.cdntwo.net/media/19085/19085.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Baile do Óleo [COLOR red] . [/COLOR]
+http://a-cdn.cdntwo.net/media/16759/16759.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Mulatas [COLOR red] . [/COLOR]
+http://b-cdn.cdntwo.net/media/7975/7975.mp4
+
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",gozando no cu [COLOR red] . [/COLOR]
+https://videos.pornoprive.xxx/videos_mega_importer/xvideos.com/8854/fodas-gostosas-de-novinhas-nuas.mp4
+
+
+
+
+
+
+
+
 
 
