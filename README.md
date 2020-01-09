@@ -112,13 +112,13 @@ http://a-cdn.cdntwo.net/media/13655/13655.mp4
 
 
 
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Aventureiros do Sexo [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Aventureiros do Sexo [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/7857/7857.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Brasileira Tesuda [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Brasileira Tesuda [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/13649/13649.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Suruba [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Suruba [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/13633/13633.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Rabudas Trepando [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Rabudas Trepando [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/8023/8023.mp4
 #EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Viciada em Anal [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/13580/13580.mp4
