@@ -168,7 +168,7 @@ http://c-cdn.cdntwo.net/media/6286/6286.mp4
 http://b-cdn.cdntwo.net/media/13999/13999.mp4
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",dando pra quatro [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/7034/7034.mp4
-http://evpp.mm.uol.com.br/ne10/ne10.smil/chunklist_w1007510079_b216000_sleng.m3u8
+
 
 
 
