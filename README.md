@@ -120,53 +120,53 @@ http://c-cdn.cdntwo.net/media/13649/13649.mp4
 http://a-cdn.cdntwo.net/media/13633/13633.mp4
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Rabudas Trepando [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/8023/8023.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Viciada em Anal [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Viciada em Anal [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/13580/13580.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Dupla Penetração [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Dupla Penetração [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/8020/8020.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Louca Obsessão [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Louca Obsessão [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/13401/13401.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Canadense Ninfeta[COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Canadense Ninfeta[COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/15389/15389.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Ninfetinha [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Ninfetinha [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/17870/17870.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Deu o cu Pro fã [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Deu o cu Pro fã [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/20594/20594.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Rabo Pra Cima [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Rabo Pra Cima [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/18568/18568.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Pra Levar Rola [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Pra Levar Rola [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/20004/20004.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"gostosas cavalas [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"gostosas cavalas [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/6981/6981.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Marido Corno [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Marido Corno [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/11174/11174.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Morena Deliciosa [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Morena Deliciosa [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/16309/16309.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Foi Pro Motel [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Foi Pro Motel [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/9363/9363.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Gostosa e Safada [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Gostosa e Safada [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/7824/7824.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Trepando em pé [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Trepando em pé [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/5084/5084.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Fodeu as Duas [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Fodeu as Duas [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/18731/18731.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Mineira Deliciosa [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Mineira Deliciosa [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/19268/19268.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Ninfeta Deliciosa [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Ninfeta Deliciosa [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/20137/20137.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Colegas Belinha [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Colegas Belinha [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/16166/16166.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Fudida Com Força [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Fudida Com Força [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/14237/14237.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Loira Ninfeta [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Loira Ninfeta [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/14378/14378.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Cheia De Tesão [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Cheia De Tesão [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/14013/14013.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"loirinha [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"loirinha [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/6286/6286.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Rabão Empinado [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"Rabão Empinado [COLOR red] . [/COLOR]
 http://b-cdn.cdntwo.net/media/13999/13999.mp4
-#EXTINF:-1 tvg-id=" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"dando pra quatro [COLOR red] . [/COLOR]
+#EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS"dando pra quatro [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/7034/7034.mp4
 
 
