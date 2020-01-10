@@ -200,6 +200,17 @@ http://streaming.pornonacionais.com/wp-content/uploads/2019/01/Comendo-Mia-Khali
 
 
 
+#EXTINF:-1 tvg-id="" tvg-logo="https://cdn6.aptoide.com/imgs/2/6/b/26b4b82610fed3b80c54e1376459ce17_icon.png?w=240" group-title="ADULTOS",TAYLOR [COLOR red] . [/COLOR]
+http://s2.pandafiles.com:8080/d/7i3tafgl26dgayappof2g3odgqlvlrrykk2f4e7o435dkynbiwf6icd4rkt7nxaihz2olyz3/video.mp4
+#EXTINF:-1 tvg-id="" tvg-logo="https://cdn6.aptoide.com/imgs/2/6/b/26b4b82610fed3b80c54e1376459ce17_icon.png?w=240" group-title="ADULTOS",  Ava Addams [COLOR red] . [/COLOR]
+http://s2.pandafiles.com:8080/d/7i3tofgl26dgayappof2k26gn5rukmc33a6qcnto7i4mixw54nd2unjpkrd4cm3thz2l5rur/video.mp4
+
+
+
+
+
+
+
 
 
 
