@@ -150,22 +150,16 @@ http://c-cdn.cdntwo.net/media/6286/6286.mp4
 http://b-cdn.cdntwo.net/media/13999/13999.mp4
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",dando pra quatro [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/7034/7034.mp4
-
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",yasmin [COLOR red] . [/COLOR]
 http://streaming.pornonacionais.com/wp-content/uploads/2018/06/Porno-torrent.mp4
-
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",VARA NA TIA [COLOR red] . [/COLOR]
 http://streaming.pornonacionais.com/wp-content/uploads/2017/03/24f6ea2cd4aa41c0961a1538232a628e.mp4
-
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",SUPERHENTAIS [COLOR red] . [/COLOR]
 http://streaming.pornonacionais.com/wp-content/uploads/2019/10/xvideos.com_b0ce0f8852d30f7f7a85196e21d4da7f.mp4
-
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",RUIVA SAFADA [COLOR red] . [/COLOR]
 http://streaming.pornonacionais.com/wp-content/uploads/2019/09/Boa-foda-ruiva-safada-fodendo-com-amante.mp4
-
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",ESTUDANTE FODENDO [COLOR red] . [/COLOR]
 http://streaming.pornonacionais.com/wp-content/uploads/2020/01/xvideos.com_702bc95f2597b87079b94a9e91346c5e-1.mp4
-
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",GEMENDO NA ROLA [COLOR red] . [/COLOR]
 http://streaming.pornonacionais.com/wp-content/uploads/2016/12/d317e057a50bc214ed32ad3eaba90a1e.mp4
 
