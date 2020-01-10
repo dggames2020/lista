@@ -94,24 +94,6 @@ http://c-cdn.cdntwo.net/media/19382/19382.mp4
 http://b-cdn.cdntwo.net/media/8009/8009.mp4
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Coroa Ruiva  [COLOR red] . [/COLOR]
 http://a-cdn.cdntwo.net/media/13655/13655.mp4
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Aventureiros do Sexo [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/7857/7857.mp4
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",Brasileira Tesuda [COLOR red] . [/COLOR]
@@ -169,6 +151,8 @@ http://b-cdn.cdntwo.net/media/13999/13999.mp4
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",dando pra quatro [COLOR red] . [/COLOR]
 http://c-cdn.cdntwo.net/media/7034/7034.mp4
 
+#EXTINF:-1
+http://s2.pandafiles.com:8080/d/7i3tafgl26dgayappof2g3odgqlvlrrykk2f4e7o435dkynbiwf6icd4rkt7nxaihz2olyz3/video.mp4
 
 
 
