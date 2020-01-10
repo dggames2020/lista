@@ -195,7 +195,238 @@ http://streaming.pornonacionais.com/wp-content/uploads/2016/12/495.mp4
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",MIA KHALIFA [COLOR red] . [/COLOR]
 http://streaming.pornonacionais.com/wp-content/uploads/2019/01/Comendo-Mia-Khalifa-Gata-Peituda-Fodendo.mp4
 
+*************************** ADULTOS BRAZZERS ********************************************
 
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS 
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_chloeamour022714/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_avataylor_emmastoned032514/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_dakotaskye040314/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_sabrinabanks071414/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_tiffanyfox030514/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_kaceyjordan061914/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_jennaross040414/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_kaceyjordan031914/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_chloefoster021214/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_dillionharper030614/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://videos.galleries.pornpros.com/galleries.tiny4k.com/htdocs/fb01/fb01_emmastoned03414/content/vid01.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS 
+http://tube.paperstreetcash.com/12mins/rubateen/rubateen_gerta_12minute.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/12mins/rubateen/rubateen_ilina_12minute.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/12mins/rubateen/rubateen_jane_12minute.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/8mins/exxxtrasmall/exxxtrasmall_lacie_channing_8minutes.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/12mins/rubateen/rubateen_mirabella_12minute.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS 
+http://tube.paperstreetcash.com/8mins/exxxtrasmall/exxxtrasmall_chichi_medina_8minutes.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/8mins/exxxtrasmall/exxxtrasmall_chloe_foster_8minutes.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/12mins/exxxtrasmall/exxxtrasmall_dakota_skye_12minute.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/8mins/rubateen/rubateen_demida_8minutes.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/12mins/rubateen/rubateen_dusya_12minute.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS 
+http://stream2.fastcdn.me/flv/490.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/416.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/408.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/409.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/391.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/389.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/377.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/375.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/370.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/371.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/363.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/487.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/359.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/356.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/347.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/367.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/346.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/343.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/337.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/336.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/333.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/326.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/484.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/322.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/318.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/316.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/308.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/311.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/310.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/301.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/303.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/299.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/293.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/481.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/291.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/280.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/283.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/282.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/281.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/279.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/275.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/273.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/269.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/268.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/459.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/271.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/267.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/266.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/265.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/264.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/262.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/261.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/259.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/260.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/256.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/456.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/254.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/251.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/249.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/248.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/227.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/214.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/216.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/210.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/200.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/199.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/451.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/197.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/196.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/195.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/193.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/422.mp4#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://stream2.fastcdn.me/flv/414.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/8mins/exxxtrasmall/exxxtrasmall_sara_luvv_8minutes.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://tube.paperstreetcash.com/12mins/rubateen/rubateen_sasha_12minute.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/02/7/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/2/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://img5.younggirlstube.com/scj/thumbs/galleries/7/184/0_772.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/02/12/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/1/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/02/18/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/4/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/02/8/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/02/16/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/7/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/11/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/20/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/19/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/02/12/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/3/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/02/18/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+http://content2.sexforsure.com/2013/07/03/18/Video.mp4
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS
+https://docs.google.com/file/d/1K-zjq1sxgkEwpr-HK6QJmaN0TpFcmQDE/preview
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS BRAZZERS",BRAZZERS 
+https://iptvm3ulist.com/m3u/br01_iptvm3ulist_com_281219.m3u
 
 
 
