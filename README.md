@@ -195,6 +195,27 @@ http://streaming.pornonacionais.com/wp-content/uploads/2016/12/495.mp4
 #EXTINF:-1 tvg-id="" tvg-logo="https://static.wixstatic.com/media/09ad66_554e99ae88824749a446a31ba32cceb5~mv2.jpg/v1/fit/w_300,h_300,al_c,q_80/file.jpg" group-title="ADULTOS",MIA KHALIFA [COLOR red] . [/COLOR]
 http://streaming.pornonacionais.com/wp-content/uploads/2019/01/Comendo-Mia-Khalifa-Gata-Peituda-Fodendo.mp4
 
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3327/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3328/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3329/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3330/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3340/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3341/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3342/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3343/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3344/180sec.flv
+#EXTINF:1 tvg-logo="https://ci.phncdn.com/videos/201905/01/221325791/original/(m=qMJJ2SUbeaAaGwObaaaa)(mh=RHHnEi4SS2Py_mU9)0.jpg" group-title="ADULTOS",BRAZZERS
+http://static.brazzers.com/scenes/3345/180sec.flv
+
 
 
 
